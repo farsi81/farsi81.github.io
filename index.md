@@ -12,7 +12,7 @@ Python , C++
 
 ---
 <img src = "https://i.postimg.cc/s21Dt7MS/IMG-4431.jpg" width="300"> <br/>
-Name : Mohammad Hossein Farsi <br/>
+
 TEL  : 09370632440,<br/>
 Mail : mhf8100@gmail.com<br/>
 
